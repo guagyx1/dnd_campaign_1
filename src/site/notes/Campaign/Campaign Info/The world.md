@@ -4,6 +4,12 @@
 
 Welcome to the wiki for the world. 
 
+This place will act as the archives for the general knowledge of the world of _____.  
+
+
+
+
+
 [[Campaign/Campaign Info/races/&List of races\|&List of races]]
 
 [[Campaign/Campaign Info/Wildlife/Wildlife\|Wildlife]]
