@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/campaign/campaign-info/player-characters/and-player-characters/"}
 ---
 
-
+[[Whoever Wayne's playing\|Whoever Wayne's playing]]
 
 [[Campaign/Campaign Info/Player Characters/Lythronax\|Lythronax]]
 
