@@ -20,7 +20,12 @@
 
 [[Campaign/Campaign Info/Events/Eras/List of Eras\|Eras]]
 
-### Stories and Heroes
+### Stories
+
+[[Campaign/Campaign Info/Session Notes/List of Session Notes\|List of Session Notes]]
+
+
+### Heroes
 
 [[Campaign/Campaign Info/Player Characters/&Player Characters\|&Player Characters]]
 
