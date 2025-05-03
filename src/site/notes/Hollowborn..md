@@ -29,7 +29,7 @@ For the first time, as far as you can remember, you interrogated your own feelin
 
 the feeling grows. 
 
-I mean, how would it benefit you, or anyone else for that matter, to know about your past? What you used to be like, where you're from? Let's see, you've-
+I mean, how would it benefit you, or anyone else for that matter, to know about your past? What you used to be like, where you're from? Let's see, most recently, you've-
 
 **--BACKSTORY STUFF I DON'T WANT TO MAKE ASSUMPTIONS ON--**
 
