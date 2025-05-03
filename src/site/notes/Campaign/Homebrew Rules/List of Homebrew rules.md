@@ -7,7 +7,7 @@
 
 roll for hp on level up- cannot go below average for the dice. 
 
-nat20 guarentee success and nat1 vice versa. If there's no chance of failure/success, say so. 
+nat20 guarentee success and nat1 vice versa.
 
 [[Campaign/Homebrew Rules/Skill Challenges\|Skill Challenges]]
 

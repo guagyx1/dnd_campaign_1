@@ -29,6 +29,9 @@
 
 [[Campaign/Campaign Info/Player Characters/&Player Characters\|&Player Characters]]
 
+[[Character creation help\|Character creation help]]
+
+
 ### Rules and textbooks
 
 [[Campaign/Homebrew Rules/List of Homebrew rules\|List of Homebrew rules]]
