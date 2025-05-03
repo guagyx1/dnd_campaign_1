@@ -9,25 +9,25 @@ This is just a narrative bit I'm writing in to sort of explain how the amnesia m
 
 
 
-It didn't happen suddenly. 
+**It didn't happen suddenly.** 
 
-For several years you've made your own way, surviving by yourself, or maybe with the odd partner on a particular job, or riding with a few travelers townwards in silence, but you've never had a chance to divulge to anyone. You never had a reason to, you've always been cagey with your past, you never thought it to be important. You never thought about it much at all.
+For several years you've made your own way, surviving by yourself, or maybe with the odd partner on a particular job, or riding with a few travelers townwards in silence, but you've never had a chance to divulge to anyone. You never had a reason to, you've always been cagey with your past, you never thought it to be important. *You never thought about it much at all.*
 
-Until somebody bothered to ask you. 
+**Until somebody bothered to ask you.** 
 
-It was a couple years back at this point. You don't quite remember the specifics. All the little details of the encounter have been whittled away over time as if by a knife, through your repeated recalling. But what is left, clear as day, the burning nugget that haunts your every waking moment. The question she asked you. 
+It was a couple years back at this point. You don't quite remember the specifics. All the little details of the encounter have been whittled away over time as if by a knife, through your repeated recalling. But what is left, clear as day, the *burning nugget* that haunts your *every* waking moment. The question she asked you. 
 
-"So where are you from?"
+**"So where are you from?"**
 
 The easiest, most ubiquitous question in the world. An obligatory ice breaker, or borne out of genuine curiosity? It doesn't matter. Before that day, You never even had the thought to answer one of these questions before, it was a waste of time and thought, that you could've spent on furthering your own survival. 
 
 She, like everyone else, of course, didn't receive your answer. But this time, things were a little different. A feeling of dread, hate, melancholy... emptiness, whatever you want to call it. Just like every time before, an iota of this feeling rose up in the depths of your heart as you dismissed the query. 
 
-But this time, you bothered to notice it. To question it. 
+But this time, you bothered to notice it. To *question* it. 
 
 For the first time, as far as you can remember, you interrogated your own feelings. Interrogated yourself, about why you never bothered to answer. The cool and mysterious vibe must have suited you. Your past isn't that important anyway, you've been doing this for as long as you can remember. 
 
-the feeling grows. 
+**the feeling grows.** 
 
 I mean, how would it benefit you, or anyone else for that matter, to know about your past? What you used to be like, where you're from? Let's see, most recently, you've-
 
@@ -37,7 +37,7 @@ And before that, you were **--YOU CAN DECIDE WHAT THE FIRST THING YOU REMEMBER W
 
 That must have been six or seven years ago now, and before that...
 
-The feeling is all consuming. 
+### ***The feeling is all consuming.*** 
 
 before that... 
 
@@ -45,7 +45,7 @@ That's when it hits you all at once. The feeling, the realization, the awareness
 
 Where are you from? Who are your parents? What did you do? What languages did you used to speak? What food did you used to like? Who taught you in school? Who were your friends? What were you like as a child? 
 
-Who are you? Who were you?
+**Who are you? Who *were* you?**
 
 Like a sleek yet viscous oil. These questions stick to you, yet in trying to answer them, they slip between your fingers onto the ground, impossible to grasp. You're lost. 
 
