@@ -56,7 +56,7 @@ Phew so much edge!
 
 # Amnesia
 
-So basically the way the amnesia works, as far as your character is concerned, is that they actually have a fine memory, as any other normal person, but are unable to recall anything from over about 7 years ago (we can adjust the timeline if needed if you want to have a certain amount of stuff in your backstory be post-amnesia). Any development skills like language, walking, etc, is totally fine, you still know that stuff, but specific people, events, the name of your parents, etc, are totally lost to you.
+So basically the way the amnesia works, as  far as your character is concerned, is that they actually have a fine memory, as any other normal person, but are unable to recall anything from over about 7 years ago (we can adjust the timeline if needed if you want to have a certain amount of stuff in your backstory be post-amnesia). Any development skills like language, walking, etc, is totally fine, you still know that stuff, but specific people, events, the name of your parents, etc, are totally lost to you.
 
 Any personal traits you might have had, like your attitude, disposition, personality, or a trait like hating croissants, may have come from either before or after amnesia (up to you!), but any inciting incidents as to why you are that way, if they happened pre-amnesia, are lost to you. 
 

@@ -2,7 +2,7 @@
 {"dg-publish":true,"permalink":"/campaign/campaign-info/wiki-homepage/","tags":["gardenEntry"]}
 ---
 
-
+ 
 >Why shouldn't a learned Scholar like you make yourself familiar and comfortable?
 >
 >Take a seat, grab a text, and enjoy yourself, let us explore the world through words.
